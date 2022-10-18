@@ -8,4 +8,4 @@ I’m currently studying some methods and tools of effective work with a product
 
 
 ⚡ Fun fact: 
-I changed my career track from a global manufacturing company to an IT company and I'm excited to keep growing.
+I changed my career track from a global manufacturing company to IT company and I'm excited to keep growing.
